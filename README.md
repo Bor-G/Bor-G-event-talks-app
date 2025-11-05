@@ -1,0 +1,1 @@
+# Bor-G-event-talks-app
